@@ -1,1 +1,1 @@
-# voicipourquoimaman.github.io
+Cette application est entièrement conçu par @DarkFadow et son équipe. Toute personne essayant de se procurer le rôle de créateur de membre de l'équipe de @DarkFadow sans l'être (illégalement) sera sanctionné d'un ban de l'application. Cette application est a but humoristique et créatif. Amusez-vous bien sur notre application !
